@@ -103,13 +103,17 @@
 ![filight](picture/master.jpg)
 
 #### 3. 필라이트
+- 말도 안되게 필라이트
 '말도 안되게~' 로 시작하는 필라이트의 광고 문구를 응용하여 슬플 때도, 신날 때도, 기쁠 때도 필라이트를 마신다는 것을 강조한다. 
 'FILIGHT' 의 'L' 을 코로 활용해 캔을 디자인 하는 아이디어  
+
 | ![filight_blue](picture/blue.jpg)	| ![filight_green](picture/green.jpg)	| ![filight_orange](picture/orange.jpg)	|
 |---	|---	|---	|
 
+- Feel light like Filight
 
-- Filight와 Feel light의 언어 유희를 통해 Filight의 가벼움을 강조한다. 
+퇴근길 업무에 지친 직장인들은 맥주가 당기기 마련이다. 
+퇴근길 마주할 수 있는 버스 정류장에 필라이트 맥주 모양 풍선을 설치함으로써 이들의 이목을 끌고 필라이트가 그만큼 'Light'하다는 것을 보여준다. 광고 속 필리가 필라이트 풍선을 타고 올라가는 모습은 힘든 업무를 내려놓고 맥주를 마시고 싶어하는 직장인들의 심리를 자극해 구매를 유도한다. 
 
 ![filight](picture/filight.jpg)
 
